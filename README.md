@@ -1,5 +1,5 @@
 
-## MISSION INITIATED ⚡ | WELCOME OPERATIVE (#--gifs-for-readme--)
+## MISSION INITIATED 💀 | ACCESS GRANTED 🤖
 
 ```
 ████████████████████████████████████████████████████████████  ██╗  ██╗███████╗██╗     ██╗      ██████╗
